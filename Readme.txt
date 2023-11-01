@@ -1,0 +1,1 @@
+Download the "Shopping Desktop List App.zip" file in your desktop to try the app.
